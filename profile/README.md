@@ -1,4 +1,4 @@
-## Hi there 👋
+Work is the best antidote to sorrow, my dear Watson.
 
 <!--
 
